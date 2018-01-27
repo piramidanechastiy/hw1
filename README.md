@@ -29,5 +29,3 @@
 
 Je crois, c'est tout!
 ![](http://78.media.tumblr.com/24740fc9a6df4fc1f2f69e689aa59cbd/tumblr_ng0p3erR9W1s7urk3o1_1280.jpg)
-
-P.S.:Если хотите придти на наши пары (174-2) и познакомиться, имейте в виду, что мы ***полуночники***
